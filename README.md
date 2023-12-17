@@ -1,3 +1,3 @@
 # Circle-Journey
 
-Download Link - https://drive.google.com/file/d/1ZhAhvEHlLsP4l9rApxbFSRzfVtr5cLPu/view?usp=sharing
+Download Installer - https://drive.google.com/file/d/1JW6bDYtWGATJqhGTZhk3WUhSkxLluHMA/view?usp=drive_link
